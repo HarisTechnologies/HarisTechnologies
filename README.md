@@ -1,1 +1,1 @@
-# HarshitGarisIndustries
+# Haris Technologies
